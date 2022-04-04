@@ -1,1 +1,1 @@
-# rsschool-cv
+https://arkanoharrison.github.io/rsschool-cv/cv
